@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+I am currently working on my new website that announces my new album coming out May 1st!
+
+Fun fact: Orange Coat Society loves Cheetahs!
